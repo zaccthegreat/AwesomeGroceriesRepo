@@ -7,3 +7,6 @@
 5. Almond Milk
 6. Kodak Waffle Mix
 7. Chips
+8. Oreos
+9. Gluten Free Ice Cream
+10. Water
